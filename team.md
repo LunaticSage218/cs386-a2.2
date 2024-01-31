@@ -6,3 +6,4 @@ my name is Fady
 #### NMG888
 My name is Nicholas Greco. I love cats and play league of legends :)
 ##### LunaticSage218
+I threw a no-hitter in my freshman year of high school. 
